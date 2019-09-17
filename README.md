@@ -12,11 +12,11 @@ Not all men are bad, but many are and we need to do something about this because
 ## Call to Action for a Better World:
 
 
-Any type of sexual harassment or malevolence directed towards women needs to be considered a criminal offence and the punishments need to be severe to deter the criminal men.
+* Any type of sexual harassment or malevolence directed towards women needs to be considered a criminal offence and the punishments need to be severe to deter the criminal men.
 
-In school, boys need to take mandatory classes where they learn about the history of the oppression of women, and they also need to learn not to abuse women. These classes will have strict tests they need to pass to ensure every boy knows very concretely not to be a criminal in regards to girls and to women.
+* In school, boys need to take mandatory classes where they learn about the history of the oppression of women, and they also need to learn not to abuse women. These classes will have strict tests they need to pass to ensure every boy knows very concretely not to be a criminal in regards to girls and to women.
 
-Before men go off to university/college/career (after high school), they need be sent to mandatory education camps to make sure that when they do go off into the world, they don’t become rapists and they don’t commit other crimes towards women.
+* Before men go off to university/college/career (after high school), they need be sent to mandatory education camps to make sure that when they do go off into the world, they don’t become rapists and they don’t commit other crimes towards women.
 
 This won’t happen overnight although it can be accomplished and I think it should be done. These actions should be taken because for the past thousands of years women have been oppressed, and things haven’t truly changed. Despite numerous attempts of governments to pretend and to say they are doing something about the problems women face in our society, in reality the government is just saying they’re taking action to get votes, they don’t really care about women’s issues. If governments did care, we wouldn’t have the problems we face now.
 
