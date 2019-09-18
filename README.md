@@ -1,5 +1,5 @@
 ## Note for the founder of Medium:
-* Medium will always be in the shadow and be in second place compared to Twitter.
+* Medium will always be in the shadow and will always be in second place compared to Twitter.
 
 
 ## Article that got me Banned:
