@@ -1,7 +1,7 @@
 ## Note about Medium:
 * I wonder if Medium will ever become profitable. People who rely on Medium as an income source should be very cautious about that because Medium can get into financial trouble very easily if there was a recession since the company isn't actually making any money.
 
-## Article that got me Banned:
+## Article that got me banned:
 
 Aren’t you sick of all these men getting away with so many unpunished crimes?
 Even in the most economically grounded countries in our world issues of sexual harassment, misogyny, and rape are still occurring on a daily basis.
