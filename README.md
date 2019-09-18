@@ -1,29 +1,36 @@
-## Note about Medium:
-* I wonder if Medium will ever become profitable. People who rely on Medium as an income source should be very cautious about that because Medium can get into financial trouble very easily if there was a recession since the company isn't actually making any money.
+## Note about Medium
+They have [their rules](https://medium.com/policy/medium-rules-30e5502c4eb4) posted online and are very easy to access. I broke multiple rules with the content I created.
 
-## Article that got me banned from Medium:
+## Some rules I broke (there are probably more tbh)
 
-Aren’t you sick of all these men getting away with so many unpunished crimes?
-Even in the most economically grounded countries in our world issues of sexual harassment, misogyny, and rape are still occurring on a daily basis.
-It’s almost impossible (if not impossible) to find a woman that has not been a victim of these malicious behaviours.
+### Deceptive conduct
 
-Seriously, what… the… fuck.
+> Don’t use deception to generate revenue or traffic
 
-It’s almost 2020, and so many men are still committing these crimes, and most of the time they aren’t even considered crimes by our society. When they are considered crimes, the victims often are blamed and are looked down upon.
-Let’s be clear about that, bringing a girl into the world in 2020 implies you are bringing a human being into the world that will have a high chance of being the victim of discrimination at the hands of around 50% of the population.
-Not all men are bad, but many are and we need to do something about this because clearly our system isn’t working.
+The offending post was titled, "Do You Have Anxiety? Depression? Try This!" In this post, I suggest my ReduxX library would solve anxiety and depression. That was definitely deceptive, and it also breaks the next rule!
 
+### Ads, Promotions, and Marketing
 
-### Call to Action for a Better World:
+> Third-party advertising and sponsorships are not allowed. You may not advertise or promote third-party products, services, or brands through Medium posts, publications, or letters.
 
+All of my content linked here breaks this rule.
 
-* Any type of sexual harassment or malevolence directed towards women needs to be considered a criminal offence and the punishments need to be severe to deter the criminal men.
+### Spam
 
-* In school, boys need to take mandatory classes where they learn about the history of the oppression of women, and they also need to learn not to abuse women. These classes will have strict tests they need to pass to ensure every boy knows very concretely not to be a criminal in regards to girls and to women.
+I broke multiple rules here.
 
-* Before men go off to university/college/career (after high school), they need be sent to mandatory education camps to make sure that when they do go off into the world, they don’t become rapists and they don’t commit other crimes towards women.
+> Posting content primarily to drive traffic to, or increase the search rankings of, an external site, product, or service
 
-This won’t happen overnight although it can be accomplished and I think it should be done. These actions should be taken because for the past thousands of years women have been oppressed, and things haven’t truly changed. Despite numerous attempts of governments to pretend and to say they are doing something about the problems women face in our society, in reality the government is just saying they’re taking action to get votes, they don’t really care about women’s issues. If governments did care, we wouldn’t have the problems we face now.
+> Posting duplicate content, whether from a single account or across multiple accounts
 
+> Repeatedly using responses or other interactions as a method of promotion
 
-Go to your local government and propose these changes. If they aren’t willing make these changes exactly to this degree, then you need to take action into your own hands. First thing, consider if it’s possible to create a local government party so that you can make these changes happen. It might not be possible for whatever reason, maybe even if the government would allow these exact changes it would take years and years for it happen. So we need to figure out an alternate way. Build your wealth and your power within your society and create “inner-societies” within your country where the rules are fair for women (like described above in the call to action). These communities can connect together and eventually what will happen is that the whole world will see how advanced these societies are, simply as a result of women being treated fairly in these societies. The rest of the world will quickly follow this way. This will bring about a quick and a highly-effective way to change the world for the better so that women don’t have to live in fear.
+> Repeatedly using responses or other interactions as a method of promotion
+
+In [this comment](thanks-for-sharing-your-experiences-of-men-putting-their-penises-in-your-vagina), I started by saying, "Thanks for sharing your experiences of men putting their penises in your vagina," and continued to promote my ReduxX library. Completely irrelevant, and just plain gross.
+
+In [another comment](while-you-are-putting-penises-in-your-vagina-mouth-and-ass-consider-telling-your-partner-s), I started by saying "While you are putting penises in your vagina, mouth, and ass, consider telling your partners," and continued to promote my ReduxX library. Also irrelevant, gross, and I guess I can't stop repeating myself.
+
+## Medium hasn't done anything wrong
+
+> We strive to be fair, but we reserve the right to suspend accounts or remove content, without notice, for any reason, particularly to protect our services, infrastructure, users, or community. If you attempt to evade suspension by creating new accounts or posts, we will suspend your new accounts and posts.
