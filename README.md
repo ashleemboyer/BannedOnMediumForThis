@@ -1,6 +1,6 @@
 ## Note for the founder of Medium:
+* I wonder if Medium will ever become profitable. People who rely on Medium as an income source should be very cautious about that because Medium can get into financial trouble very easily if there was a recession since the company isn't actually making any money.
 * Medium will **always** be in the shadow and will **always** be in second place compared to Twitter.
-
 
 ## Article that got me Banned:
 
