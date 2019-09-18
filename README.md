@@ -1,3 +1,9 @@
+## Note for the founder of Medium:
+* Medium will always be in the shadow and be in second place compared to Twitter.
+
+
+## Article that got me Banned:
+
 Aren’t you sick of all these men getting away with so many unpunished crimes?
 Even in the most economically grounded countries in our world issues of sexual harassment, misogyny, and rape are still occurring on a daily basis.
 It’s almost impossible (if not impossible) to find a woman that has not been a victim of these malicious behaviours.
